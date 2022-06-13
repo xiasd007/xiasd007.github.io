@@ -4,11 +4,11 @@
 #### 进群先看
 简单流程：拼多多下单——地址填写自己的——收到货后转寄给我——回款
 
-[**下单教程](https://docs.qq.com/doc/DSG56d1pHWVB3b09p)
+[**下单教程**](https://docs.qq.com/doc/DSG56d1pHWVB3b09p)
 
 高价回收的产品
 
-[**产品熟悉](https://docs.qq.com/doc/DSFRBY01Lak93eFNp "下这几款产品")
+[**产品熟悉**](https://docs.qq.com/doc/DSFRBY01Lak93eFNp "下这几款产品")
 ***
 #### 快递
 

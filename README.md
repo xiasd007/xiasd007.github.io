@@ -5,9 +5,11 @@
 
 [**下单教程**](https://docs.qq.com/doc/DSG56d1pHWVB3b09p)
 
-高价回收以下产品
+高价回收以下产品（拼多多百亿补贴）
 
-[**产品熟悉**](https://docs.qq.com/doc/DSFRBY01Lak93eFNp "下这几款产品")
+[**主流产品**](https://docs.qq.com/doc/DSFRBY01Lak93eFNp "下这几款产品")  _新手先下_
+
+[**全部产品**](https://docs.qq.com/sheet/DYkpKYWJtc21DQ1dk "代理拿方案") _代理拿方案_
 
 ---
 
